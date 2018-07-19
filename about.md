@@ -4,15 +4,10 @@ title: About
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
+这是一群跟 [BGM](https://bgm.tv) 和北美（美国和加拿大，墨西哥暂时没有）略有羁绊的人，因为一个甚至可以谈论动漫的 Telegram 群而汇聚起来。
 
-You can find the source code for Minima at GitHub:
-[jekyll][jekyll-organization] /
-[minima](https://github.com/jekyll/minima)
+Telegram Group：<https://sleepingship.xyz/bgmna/>
 
-You can find the source code for Jekyll at GitHub:
-[jekyll][jekyll-organization] /
-[jekyll](https://github.com/jekyll/jekyll)
+BGM海外党地图：<https://goo.gl/Hd9bqg> （2013年以来积累的，有些数据可能严重过期）
 
-
-[jekyll-organization]: https://github.com/jekyll
+其他一切事宜请联系管理员: <admin@bgmna.org>
