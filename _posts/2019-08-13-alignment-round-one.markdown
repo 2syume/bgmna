@@ -10,4 +10,4 @@ category:
 ![](/content/images/alignment-1.jpg)
 
 另外在 BGM 小组里也能找到当时的帖子。  
-https://bgm.tv/group/topic/342158
+<https://bgm.tv/group/topic/342158>
