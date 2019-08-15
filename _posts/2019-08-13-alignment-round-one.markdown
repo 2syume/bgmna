@@ -1,5 +1,5 @@
 ---
-title: 群考古：第一届九宫格
+title: 群考古之第一届九宫格
 layout: post
 date: 2019-08-13 08:48:15 -0400
 category: 
