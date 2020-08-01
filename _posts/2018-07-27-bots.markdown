@@ -2,7 +2,7 @@
 title: 裙内生存指南之机器人
 layout: post
 date: 2018-07-27 17:00:38 -0400
-category: 
+category: 指南
 ---
 
 Telegram 群里面用的主要是两类 bot，一类是群成员开发的普通 bot，可以在群成员列表里找到它们；另外一类是 Telegram 的 inline bot，是任何对话和群里都可以用的。

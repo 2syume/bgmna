@@ -2,7 +2,7 @@
 title: BGM NA 流行疾病灾难准备手册
 layout: post
 date: 2020-03-08 17:42:11 -0400
-category: 
+category: 指南
 ---
 
 ## 1. 前言
