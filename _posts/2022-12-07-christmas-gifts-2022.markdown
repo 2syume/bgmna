@@ -13,18 +13,18 @@ category: 活动
 
 ![](https://p.sda1.dev/8/c02f10f73034eddea0a4981bcc68424a/image.png)
 
-```
-某群友是知道我有台thinkpad吗（
-
-我家里用的keychron，打算拿去公司用了。四舍五入群友和我上班（
-```
+> 某群友是知道我有台thinkpad吗（
+> 
+> 我家里用的keychron，打算拿去公司用了。四舍五入群友和我上班（
 
 ## Neo
 
 ![](https://p.sda1.dev/8/6ff9e7216e52ab6b634c3beda04ff6ab/image.png)
 
-```
-收到了群友送的礼物
+> 不知道为什么包装上还写个18+，看不出有什么奇怪的要素ww
 
-不知道为什么包装上还写个18+，看不出有什么奇怪的要素ww
-```
+## MachX
+
+![](https://p.sda1.dev/8/6d946c05605f24002dd717ba375a2743/image.png)
+
+> 碳水狂魔狂喜
