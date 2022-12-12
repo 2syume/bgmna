@@ -28,3 +28,21 @@ category: 活动
 ![](https://p.sda1.dev/8/6d946c05605f24002dd717ba375a2743/image.png)
 
 > 碳水狂魔狂喜
+
+## bodayw
+
+![](https://p.sda1.dev/8/9c771dd820c1d14d97e9b78be235f63a/image.png)
+
+> 惊了！（被 bot 摁死
+> 
+> 虽然我还算是昭和年间出生，但我真的没看过这两部（
+> 
+> 总之标上先（
+
+## Alice Bob
+
+![](https://p.sda1.dev/8/9f47ff06cb513ade0be4635c4c688307/image.png)
+
+> 群友的礼物好高级
+> 
+> 高端了
