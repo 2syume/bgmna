@@ -84,3 +84,13 @@ category: 活动
 ![](https://p.sda1.dev/8/87c540768a58e0aded06d9084e086795/image.png)
 
 > 谢谢群友送来了圆环之理会来接我的阶段性消息！！！
+
+## 钉钉
+
+![](https://p.sda1.dev/8/62b35a205b55682bdb96c24dcdebab68/image.png)
+
+> 收到了群友礼物（已经拼完了
+> 
+> 赞美群友！我好了
+> 
+> 甚至抽到了隐藏角色hhh
