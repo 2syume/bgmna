@@ -100,3 +100,9 @@ category: 活动
 ![](https://p.sda1.dev/8/0b62a6006fa41c57ffdc72e1031065af/image.png)
 
 > 大概得盘一下，有点硌手
+
+## keys
+
+![](https://p.sda1.dev/8/11e41013cf3bf97b5275ed8bba989538/image.png)
+
+> 收到了群友的礼物。是伊藤いづも的[插画集](https://bangumi.tv/subject/377354)，应该是check了我的班固米把，谢谢！ 实不相瞒，由于千代田桃男友魅力超高，过去有一段时间相当钟爱她们的百合本儿。还有一个意外的收获是藤原监督(昨日之歌，new game) 的巨乳美少女的形象2，以前只看过[这个](http://cdn.animetamashi.cn/d2b5c73660394853/img/15b9f1-preview) ，相比可爱了好多
