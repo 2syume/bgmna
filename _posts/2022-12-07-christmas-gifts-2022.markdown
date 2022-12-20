@@ -94,3 +94,9 @@ category: 活动
 > 赞美群友！我好了
 > 
 > 甚至抽到了隐藏角色hhh
+
+## Zhen
+
+![](https://p.sda1.dev/8/0b62a6006fa41c57ffdc72e1031065af/image.png)
+
+> 大概得盘一下，有点硌手
