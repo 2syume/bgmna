@@ -140,3 +140,9 @@ category: 活动
 > 收到了群友的礼物
 > 
 > wash pouch，似乎是放洗浴用品的，正在研究怎么用
+
+## Elaine Yan
+
+![](https://p.sda1.dev/9/ce9d2b8a9d9674420eca178a319ff44b/image.png)
+
+> 感谢群友大家诶～
