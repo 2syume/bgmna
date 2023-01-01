@@ -146,3 +146,11 @@ category: 活动
 ![](https://p.sda1.dev/9/ce9d2b8a9d9674420eca178a319ff44b/image.png)
 
 > 感谢群友大家诶～
+
+## airy
+
+![](https://p.sda1.dev/9/cd0f50099f7ce1b1ece3b94dc6016674/unknown.jpg)
+
+> 谢谢群友的新年礼物！
+> 
+> 群友还很年轻下次考虑一下不要送R15了（？）
