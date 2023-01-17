@@ -162,3 +162,9 @@ category: 活动
 > 收到了群友的礼物，感谢🥰！
 > 
 > 是日式零食box！
+
+## Cee
+
+![](https://p.sda1.dev/9/89662b9991c48d2718bd4d62abccdd9c/image.png)
+
+> 感谢一位不愿意透露名字的群主的圣诞礼物🎁
