@@ -168,3 +168,9 @@ category: 活动
 ![](https://p.sda1.dev/9/89662b9991c48d2718bd4d62abccdd9c/image.png)
 
 > 感谢一位不愿意透露名字的群主的圣诞礼物🎁
+
+## Scheherazade Z
+
+![](https://p.sda1.dev/9/bacf7725750482a90124d66d3cb15577/image.png)
+
+> 圣诞礼物到了！赞美群友！
