@@ -26,3 +26,10 @@ category: 活动
 ![](https://p.sda1.dev/14/c86d5c3d63c74c4824ab4a87c6f36515/image.png)
 
 > 收到了群友的礼物
+
+## atup
+
+![](https://p.sda1.dev/14/f708abae5b0ecc0f6957a9be8e1d8dfb/image.png)
+
+> 感谢群友送的miku和hello kitty
+> 还有狗环
