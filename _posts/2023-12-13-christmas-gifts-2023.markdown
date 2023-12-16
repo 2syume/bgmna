@@ -32,4 +32,13 @@ category: 活动
 ![](https://p.sda1.dev/14/f708abae5b0ecc0f6957a9be8e1d8dfb/image.png)
 
 > 感谢群友送的miku和hello kitty
+> 
 > 还有狗环
+
+## airy
+
+![](https://p.sda1.dev/14/e1a3abed6f0ca99a392da79adcd7812c/image.png)
+
+> 收到了群友的礼物
+>
+> 啊啊给我一杯加薪水
