@@ -42,3 +42,9 @@ category: 活动
 > 收到了群友的礼物
 >
 > 啊啊给我一杯加薪水
+
+## sinxccc
+
+![](https://p.sda1.dev/14/e60bc1f82e0518072ddc00ec9651874f/image.png)
+
+> 我也收到了
