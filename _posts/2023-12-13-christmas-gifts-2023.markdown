@@ -20,3 +20,9 @@ category: 活动
 ![](https://p.sda1.dev/14/7e7baa7ce22ac9f8d1da03f6712056a0/image.png)
 
 > 感谢群友
+
+## soulkun
+
+![](https://p.sda1.dev/14/c86d5c3d63c74c4824ab4a87c6f36515/image.png)
+
+> 收到了群友的礼物
