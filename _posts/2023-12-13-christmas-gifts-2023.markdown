@@ -48,3 +48,9 @@ category: 活动
 ![](https://p.sda1.dev/14/e60bc1f82e0518072ddc00ec9651874f/image.png)
 
 > 我也收到了
+
+## 松鼠 リス
+
+![](https://p.sda1.dev/14/2f500e9dc94084d00103954a2e1cddc2/image.png)
+
+> 谢谢群友的礼物！一对galaxy buds
