@@ -60,3 +60,11 @@ category: 活动
 ![](https://p.sda1.dev/14/789b2e24b42960a723faae688f4cfb70/image.png)
 
 > 收到了群友的礼物
+>
+> 双子！！可爱！！！
+
+## arition
+
+![](https://p.sda1.dev/14/abc2c83e635df1cc5b3780a3ac93e141/Untitled-1.png)
+
+> 感谢群友送的礼物！！超级好看的提灯！好开心
