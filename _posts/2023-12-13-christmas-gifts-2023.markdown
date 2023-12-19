@@ -54,3 +54,9 @@ category: 活动
 ![](https://p.sda1.dev/14/2f500e9dc94084d00103954a2e1cddc2/image.png)
 
 > 谢谢群友的礼物！一对galaxy buds
+
+## Curry
+
+![](https://p.sda1.dev/14/789b2e24b42960a723faae688f4cfb70/image.png)
+
+> 收到了群友的礼物
