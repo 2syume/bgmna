@@ -68,3 +68,13 @@ category: 活动
 ![](https://p.sda1.dev/14/abc2c83e635df1cc5b3780a3ac93e141/Untitled-1.png)
 
 > 感谢群友送的礼物！！超级好看的提灯！好开心
+
+## Pieris
+
+![](https://p.sda1.dev/14/d86175d6e1d8b779cbcaf5c113e0abb7/image.png)
+
+> 感谢群友的礼物喵，是eva的Jazz风格cd，已经在听了～
+> 
+> 封面很好看，就是认不出这三人是谁；曲子很好听，就是搞不明白和EVA有啥关系，除了林原惠开口的时候
+> 
+> ~俺想明白了，Jazz的难懂程度大概和eva五五开吧~
