@@ -92,3 +92,9 @@ category: 活动
 ![](https://p.sda1.dev/15/d7377e2b5f52b6687368722961a4b76a/image.png)
 
 > 赶在 2023 年到家拆~圣诞~新年礼物了
+
+## Rivers 100
+
+![](https://p.sda1.dev/15/cb007731784237c5dc43bd5dc834056d/image.png)
+
+> 收到群友的圣诞礼物了
