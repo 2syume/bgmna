@@ -32,3 +32,11 @@ category: 活动
 > 收到了群友的礼物！
 > 
 > 谢谢！
+
+## soulkun
+
+![](https://p.sda1.dev/20/f908ae2e4dc89b2ec3923bb938bee553/image.png)
+
+> 刚拆出来，这个好
+> 
+> 是大型群主
