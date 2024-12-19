@@ -60,3 +60,13 @@ category: 活动
 ![](https://p.sda1.dev/20/4f251c4abe345d267ced7ecb4269d428/image.png)
 
 > 在一片土豆中，我的礼物来了！
+
+## 豆沙包
+
+![](https://p.sda1.dev/20/b0bb79a7d852c208179b4dce6cd87891/image.png)
+
+> 感谢不具名群友送的拼装小玩具☺️
+>
+> （我就觉得怪，我今天的ups包裹rescheduled了怎么还来了一个大纸箱子
+>
+> > 这个真的能用来看胶片吗？
