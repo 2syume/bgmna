@@ -76,3 +76,23 @@ category: 活动
 ![](https://p.sda1.dev/20/8d54dc2948a15f136946e503eadcdbf8/image.png)
 
 > 收到了群友的动森超级大礼包！好多东西！刚好最近又开始玩动森了，感谢🙏
+
+https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
+
+> 大礼包里面的解压桃，很实用
+
+## sinxccc
+
+![](https://p.sda1.dev/20/97ee8ad0b7c3c41b2e4b128767726beb/image.png)
+
+> 感谢群友的礼物！
+>
+> 魔吉拉面具！
+
+## 松鼠
+
+![](https://p.sda1.dev/20/17ca7d7c45a668aa00958d13e9a36710/image.png)
+
+![](https://p.sda1.dev/20/19ebcfe1753f7f70c795de3b01f9d6c0/image.png)
+
+> 谢谢群友的波奇酱！
