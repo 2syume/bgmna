@@ -102,3 +102,11 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 ![](https://p.sda1.dev/20/5e51c9e2686ddb73df879160b155ea3f/image.png)
 
 > 收到了群友送的卡比兽玩偶，跟我的 Switch Lite 配色刚好一样，开心！饿啊卡比卡比~
+
+## airy
+
+![](https://p.sda1.dev/20/b3a154134d1f274e73a41a9e4a44abdb/image.png)
+
+> 谢谢群友送的替身披肩
+>
+> 使我免受异常状态
