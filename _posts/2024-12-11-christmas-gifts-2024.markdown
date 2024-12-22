@@ -55,6 +55,14 @@ category: 活动
 >
 > 不是布朗尼不好意思，就是一个超级脏的托盘（
 
+![](https://p.sda1.dev/20/c0518e938e495de53b56b309a50e1ccb/image.png)
+
+> 感谢群友的 真・礼物
+>
+> > woc想要
+> >
+> >我可以用一个地瓜换吗
+
 ## Curry
 
 ![](https://p.sda1.dev/20/4f251c4abe345d267ced7ecb4269d428/image.png)
