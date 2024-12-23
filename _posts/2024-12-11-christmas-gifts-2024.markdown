@@ -118,3 +118,9 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 > 谢谢群友送的替身披肩
 >
 > 使我免受异常状态
+
+## 邪恶猫
+
+![](https://p.sda1.dev/20/3599284209f0f860531e92275cdfed16/image.png)
+
+> 收到群友送来的大奶子龙了！
