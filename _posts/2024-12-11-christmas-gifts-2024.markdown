@@ -124,3 +124,17 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 ![](https://p.sda1.dev/20/3599284209f0f860531e92275cdfed16/image.png)
 
 > 收到群友送来的大奶子龙了！
+
+## JPM
+
+![](https://p.sda1.dev/20/71296800170c7d32a0a79a1020aa50e9/image.png)
+
+> OMG 群友送了好多东西
+>
+> 🙇感谢
+
+## 钉钉
+
+![](https://p.sda1.dev/20/25df88d305518171a148c1d111d339cb/image.png)
+
+> 感谢群友送来的应急食品.jpg
