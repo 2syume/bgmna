@@ -1,4 +1,4 @@
----
+![image](https://github.com/user-attachments/assets/42ec476c-2c8e-41fc-ba5f-fd250aaca701)---
 title: 2024圣诞节活动——礼物交换
 layout: post
 date: 2024-12-11 17:30:00 -0700
@@ -138,3 +138,9 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 ![](https://p.sda1.dev/20/25df88d305518171a148c1d111d339cb/image.png)
 
 > 感谢群友送来的应急食品.jpg
+
+## 鹅
+
+![](https://p.sda1.dev/20/65d94b9510f6c0307d4d9c00dcd4dd0c/image.png)
+
+> ?
