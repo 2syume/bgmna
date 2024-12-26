@@ -63,6 +63,10 @@ category: 活动
 > >
 > >我可以用一个地瓜换吗
 
+![](https://p.sda1.dev/21/2f8434e0518e66259ccbb9627c3ea6f4/20241225_205122.jpg)
+
+> 感谢群友的续・真圣诞礼物
+
 ## Curry
 
 ![](https://p.sda1.dev/20/4f251c4abe345d267ced7ecb4269d428/image.png)
