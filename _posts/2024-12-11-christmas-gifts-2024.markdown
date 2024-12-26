@@ -144,3 +144,11 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 ![](https://p.sda1.dev/20/65d94b9510f6c0307d4d9c00dcd4dd0c/image.png)
 
 > ?
+
+## Hotmoo
+
+![](https://p.sda1.dev/21/fc9f948ba4e22bb1cc5adadf5ecaa9bf/image.png)
+
+> 谢谢群友的礼物🥰🥰
+>
+> 明天买了电池玩一下
