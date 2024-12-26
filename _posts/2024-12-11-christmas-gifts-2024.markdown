@@ -152,3 +152,11 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 > 谢谢群友的礼物🥰🥰
 >
 > 明天买了电池玩一下
+
+## YCnR
+
+![](https://p.sda1.dev/21/eb61476560415c7351da6ca90110842e/image.png)
+
+> 感谢群友的礼物！
+>
+> 我打算今天拿来灌Dr.Pepper
