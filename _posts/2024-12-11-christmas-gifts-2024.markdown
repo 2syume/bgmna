@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/42ec476c-2c8e-41fc-ba5f-fd250aaca701)---
+---
 title: 2024圣诞节活动——礼物交换
 layout: post
 date: 2024-12-11 17:30:00 -0700
