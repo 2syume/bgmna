@@ -164,3 +164,17 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 > 感谢群友的礼物！
 >
 > 我打算今天拿来灌Dr.Pepper
+
+## Alan
+
+![](https://p.sda1.dev/21/f378945c166f823b913e0010f6fd6320/image.png)
+
+> 禮物到了！
+>
+> 監督
+> 
+> 感謝...
+
+> 感谢群友的礼物！
+>
+> 我打算今天拿来灌Dr.Pepper
