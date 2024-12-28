@@ -174,7 +174,3 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 > 監督
 > 
 > 感謝...
-
-> 感谢群友的礼物！
->
-> 我打算今天拿来灌Dr.Pepper
