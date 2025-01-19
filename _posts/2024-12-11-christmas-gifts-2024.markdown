@@ -174,3 +174,21 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 > 監督
 > 
 > 感謝...
+
+## Rivers
+
+![](https://p.sda1.dev/21/e7b87ebde651d0b75f36aa240f8bcba7/image.png)
+
+> 谢谢群友的圣诞礼物 挂历+lain钥匙串 wsl
+>
+> 猫猫很喜欢
+>
+> 河也很喜欢
+
+![](https://p.sda1.dev/21/e0d3a4a6f7bd822591a96bbd246741c0/image.png)
+
+> 给挂历一个特写
+
+![](https://p.sda1.dev/21/2071a6b6d8f1a7ded40e0e1a252a00aa/image.png)
+
+> 太丰富了我去世了
