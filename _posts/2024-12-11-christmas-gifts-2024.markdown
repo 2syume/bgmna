@@ -192,3 +192,21 @@ https://github.com/user-attachments/assets/7f0c5bfe-e756-4197-878f-40a35cb5be5b
 ![](https://p.sda1.dev/21/2071a6b6d8f1a7ded40e0e1a252a00aa/image.png)
 
 > 太丰富了我去世了
+
+## Zhen
+
+![](https://p.sda1.dev/22/b74dfe0c1abc523fd35955d54facb527/image.png)
+
+![](https://p.sda1.dev/22/8d9126bd016a9df5c3453155e850dcb6/image.png)
+
+> 谢谢群友的圣诞礼物！昨天刚刚下 Delta 的飞机 😂
+>
+> 寄晚了贝光头全责
+>
+> 12/14 打包的 12/27 才到
+>
+> > 桌游？
+> 
+> 甚至还是关于降落的
+>
+> 名字也是乌合联盟
