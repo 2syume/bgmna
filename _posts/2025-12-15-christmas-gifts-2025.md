@@ -15,4 +15,8 @@ category: 活动
 
 > 谢谢猫教授
 
+## Hoi Lin
 
+![](https://p.sda1.dev/29/fc85d518ab8a73bf5a1822d0418c7223/image.png)
+
+> 今年也要感谢（为什么我要说也）熊哥的小玩具（是熊哥吧没记错吧）
