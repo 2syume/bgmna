@@ -40,3 +40,9 @@ category: 活动
 > 很喜欢hhh
 >
 > 该整个胶卷相机了
+
+## sinxccc
+
+![](https://p.sda1.dev/29/2b2d57dc834db8a7e6a669701dd97492/image.png)
+
+> 感谢群友带来的毅力号火星车
