@@ -46,3 +46,17 @@ category: 活动
 ![](https://p.sda1.dev/29/2b2d57dc834db8a7e6a669701dd97492/image.png)
 
 > 感谢群友带来的毅力号火星车
+
+## arition
+
+![](https://p.sda1.dev/29/79322526e27a4950d399c3a0b6aa9f7d/image.png)
+
+> 感谢群友送的eg牛！
+>
+> 家里堆积好多，该拼了
+
+## Hikara
+
+![](https://p.sda1.dev/29/be14aa7e5a372de954c0597a63c6a5f1/image.png)
+
+> 感谢群友的礼物，T恤对我来说有点大（笑）
