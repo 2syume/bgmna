@@ -60,3 +60,13 @@ category: 活动
 ![](https://p.sda1.dev/29/be14aa7e5a372de954c0597a63c6a5f1/image.png)
 
 > 感谢群友的礼物，T恤对我来说有点大（笑）
+
+## (\*｀へ´\*)
+
+![](https://p.sda1.dev/29/9a0d48b675571e7df996a9e41ea23e62/image.png)
+
+![](https://p.sda1.dev/29/efae1ecf6869e2900b29118d026a59c0/image.png)
+
+![](https://p.sda1.dev/29/3feb6bf002ca95934662ddd655f497d6/image.png)
+
+> 感谢 airy 的 DAC！刚好缺一块dac用😇 试了一下挺好用(´▽｀)
