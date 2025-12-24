@@ -70,3 +70,9 @@ category: 活动
 ![](https://p.sda1.dev/29/3feb6bf002ca95934662ddd655f497d6/image.png)
 
 > 感谢 airy 的 DAC！刚好缺一块dac用😇 试了一下挺好用(´▽｀)
+
+## 邪恶猫
+
+![](https://p.sda1.dev/29/eeafae447df84741996a766d44f5b5e8/image.png)
+
+> 谢谢大仙！
