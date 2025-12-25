@@ -76,3 +76,9 @@ category: 活动
 ![](https://p.sda1.dev/29/eeafae447df84741996a766d44f5b5e8/image.png)
 
 > 谢谢大仙！
+
+## Curry
+
+![](https://p.sda1.dev/29/0af6bae3d2c591c3e6a202540bc6b65f/image.png)
+
+> （应该？）是群友送的礼物！今天开始使用脑子下棋！
