@@ -82,3 +82,13 @@ category: 活动
 ![](https://p.sda1.dev/29/0af6bae3d2c591c3e6a202540bc6b65f/image.png)
 
 > （应该？）是群友送的礼物！今天开始使用脑子下棋！
+
+## Alan
+
+![](https://p.sda1.dev/29/4ed7cb542634de8b1258e1550e776210/image.png)
+
+![](https://p.sda1.dev/29/a5f3b1e0990b2658952f94c9a77ce2d0/image.png)
+
+> 是 Frieren OST 的黑膠。高雅藝術入家中。
+> 
+> 要準備player了
