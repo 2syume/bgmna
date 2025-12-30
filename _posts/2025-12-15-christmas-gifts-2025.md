@@ -92,3 +92,11 @@ category: 活动
 > 是 Frieren OST 的黑膠。高雅藝術入家中。
 > 
 > 要準備player了
+
+## Zhen
+
+![](https://p.sda1.dev/29/826870be8c1c714334f25dbebdabcf5a/6242073291124313278_119.jpg)
+
+> 谢谢咖哥的 Game Boy！
+>
+> 跨年慢慢拼再返个图
