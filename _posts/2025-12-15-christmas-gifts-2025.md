@@ -100,3 +100,11 @@ category: 活动
 > 谢谢咖哥的 Game Boy！
 >
 > 跨年慢慢拼再返个图
+
+## JP M
+
+![](https://p.sda1.dev/30/1716e7c1998d5c5e81197a70b9bbcc1f/image.png)
+
+> 出去玩才到家收到群友的礼物，太丰富了，orz
+>
+> 感谢！！！
