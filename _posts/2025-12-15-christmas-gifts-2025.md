@@ -108,3 +108,21 @@ category: 活动
 > 出去玩才到家收到群友的礼物，太丰富了，orz
 >
 > 感谢！！！
+
+## 松鼠Rizu
+
+![](https://p.sda1.dev/30/7dd20dbb6be84b9e90c65a7c8a1998b6/image.png)
+
+![](https://p.sda1.dev/30/33348408ffeed9b8c4382244903ebb48/image.png)
+
+![](https://p.sda1.dev/30/dd7a8769bca6d711d6d20dd15a8dcf2c/image.png)
+
+> 谢谢群友的新海诚画集！
+
+## airy
+
+![](https://p.sda1.dev/30/245b012cf262978ecd883b595e26dec8/image.png)
+
+> 谢谢群友的礼物
+>
+> 作为牛马 没时间拼了
